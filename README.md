@@ -3,7 +3,7 @@
 Created 2024  by Rodex
 Rod X Labs Inc.
   
-Unless machine (timeless)
+Useless machine (timeless)
 A useless machine is entertainment, 
 which should be constantly ready to surprise the guest,
 ready to stand on the shelf for months 
